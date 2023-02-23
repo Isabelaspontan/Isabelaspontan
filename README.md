@@ -1,4 +1,4 @@
 - 🔭 Atualmente estou estudando em Sesc-Senac
 - 🌱 Atualmente estou aprendendo com o curso de Informática para Internet
-- 📫 Como entrar em contato comigo:(44) 9 8447-3753
+- 📫 Como entrar em contato comigo: (44) 9 8447-3753
 - 😄 Pronomes:Ela/Dela
